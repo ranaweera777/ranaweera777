@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ranaweera777
+- 👋 Hi, I’m SITH
 - 👀 I’m interested in Data Analytics 
 - 🌱 I’m currently learning in my undergrats
 - 📫 How to reach me / Discode - sith0125_19704
